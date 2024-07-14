@@ -1,23 +1,23 @@
-- 👋 Hi, I’m @jaydnstrid
+- 👋 Hi, I’m @jaydnstrid.
   
 - 👀 I’m interested in
-  programming
-  music
-  art
-  animation
+  programming,
+  music,
+  art,
+  animation,
   etc.
   
 - 🌱 I’m currently learning
-  all of the above
+  all of the above.
   
 - 💞️ I’m looking to collaborate on
-  n/a
+  nothing.
   
 - 📫 How to reach me
-  jaydnstrid everywhere (gmail, discord, etc.)
+  jaydnstrid everywhere. (gmail, discord, etc.)
 
 - 😄 Pronouns:
-  cisgender male
+  cisgender male.
   
 - ⚡ Fun fact:
-  i mostly teach myself how do to everything that i do
+  im mostly self taught at everything i do.
