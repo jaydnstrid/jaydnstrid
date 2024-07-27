@@ -20,4 +20,4 @@
   cisgender male.
   
 - ⚡ Fun fact:
-  im mostly self taught at everything i do.
+  I'm mostly self taught at everything I do.
